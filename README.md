@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @GGINC1
+- 👀 I’m interested in makeing simple fun projects to work on becouse I'm not gonna go and anything more serious any time soon.
+- 🌱 I’m currently learning this codeing thing I'm new ish to this.
+- 💞️ I’m looking to just make projects and improve them until I can use them for something.
+- 📫 I'm not looking to calibrate any time soon but I'm mightafter I'm ready.
+- 
